@@ -8,6 +8,6 @@ Meu nome é Júlia
 
 - ### você entrar em contato comigo 📪
 
-- 00001090274592sp@al.educacao.sp.gov.br
-- 
-@juju_p_aquino
+00001090274592sp@al.educacao.sp.gov.br
+
+ @juju_p_aquino
